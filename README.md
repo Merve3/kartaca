@@ -81,6 +81,3 @@ https://user-images.githubusercontent.com/90618204/164968409-53e37b84-046a-4219-
 
 
 
-## KARTACA KOD
-
-gAAAAABiL0Q3lL2dJAe4Rxtr4Kekt6ya7xgGDPWLc-skTIJSzIiSEPrl0NilhMk8qUhZeWh_XI0v7tzn2iqF9CJueS0gS89wyQ-mUE0uauCijB5JhB1XwRElmz5KFfXH1sXo-0IRexxfv166_rlLymjuLOhCzQt9hPTfDuJ2YbzrvULcjSOcTT_GW9mGA5fOyglob0bCRH5s2n9T7UBzVIDcGmurjIMJ1ITRNDaHv9_YpDu9lf-KWqM=
